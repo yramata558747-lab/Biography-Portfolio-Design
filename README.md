@@ -24,8 +24,8 @@ I like learning new things and improving my skills step by step.
 - Create user-friendly websites and applications  
 
 ## Contact
-📧 Email: your-email@example.com  
-🌐 GitHub: https://github.com/your-username  
+📧 Email: y.ramata.558747@umindanao.edu.ph 
+🌐 GitHub: https://github.com/Yushria  
 
 ---
 ✨ *Thank you for visiting my profile!*
